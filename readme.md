@@ -1,1 +1,2 @@
-Teodor Dušek
+Teodor Dušek  
+Hodnocení: V pořádku  
